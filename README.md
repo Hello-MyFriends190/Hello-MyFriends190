@@ -1,9 +1,8 @@
 ## Helloooo!!
 
-<img width="400" height="50" alt="tumblr_db4c3faf0fd60624cf3261fa42ee2837_de226187_400" src="https://github.com/user-attachments/assets/066c26a7-b113-4376-a578-8844eac2024e" />
+<img width="500" height="30" alt="tumblr_3af7d5296d3e5d94560d53f171d25400_02f0ce1d_400" src="https://github.com/user-attachments/assets/f025c3be-85e6-490a-bc3f-266313396412" />
 
-
-
+ 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31afu7frxmd7evqekmazhexrgwsy&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=828fb5&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31afu7frxmd7evqekmazhexrgwsy&redirect=true)
 
