@@ -12,6 +12,11 @@
 </p>
 
 
+<p align="center"> <img width="700" height="50" alt="tumblr_f3c986e74d76d5332c57831b74e153cf_1b974549_400" src="https://github.com/user-attachments/assets/a38d3d1d-3752-47e3-b132-9aab12802850" />
+
+
+
+
 <p align="center"> I'll add more later heh, i'm tired. TvT
 
 <!--
