@@ -2,7 +2,7 @@
 
 
 
-<p align="center"> ![image alt](https://github.com/Hello-MyFriends190/Hello-MyFriends190/blob/5ccbc06108e93d273ab974f6bc8b055bda1a6bf8/tumblr_f7297a04f42065a26f7b73154444f841_6fa44390_2048.png)
+<p align="center"> EEEEE
 
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31afu7frxmd7evqekmazhexrgwsy&redirect=true">
