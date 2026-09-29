@@ -2,7 +2,7 @@
 
 
 
-<p align="center"> <img width="600" height="30" alt="tumblr_3af7d5296d3e5d94560d53f171d25400_02f0ce1d_400" src="https://github.com/user-attachments/assets/f025c3be-85e6-490a-bc3f-266313396412" />
+<p align="center"> https://64.media.tumblr.com/f7297a04f42065a26f7b73154444f841/1d506581adf316c3-2d/s2048x3072/6fa44390d321d65b1f900119874b53a53f5962b1.pnj
 
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31afu7frxmd7evqekmazhexrgwsy&redirect=true">
