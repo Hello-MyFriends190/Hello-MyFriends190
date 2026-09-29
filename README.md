@@ -2,7 +2,7 @@
 
 
 
-<p align="center"> EEEEE
+<p align="center"> <p align="center"> <img width="700" height="50" alt="https://64.media.tumblr.com/f7297a04f42065a26f7b73154444f841/1d506581adf316c3-2d/s2048x3072/6fa44390d321d65b1f900119874b53a53f5962b1.pnj"src="https://github.com/Hello-MyFriends190/Hello-MyFriends190/blob/345d616c81a15e86dd90518f754eebb70f5bd66f/tumblr_f7297a04f42065a26f7b73154444f841_6fa44390_2048.png" />
 
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31afu7frxmd7evqekmazhexrgwsy&redirect=true">
