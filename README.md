@@ -16,7 +16,11 @@
 
 
 
-<p align="center">  ಄  .☘︎ ݁˖  Welcome to my profile!! Please read my Strawpage before int with me!!
+<p align="center">  ㅤ಄ㅤㅤㅤ .☘︎ ݁˖  ㅤㅤㅤWelcome to my profile!!  Please read my Strawpage before int with me!!
+
+<p align="center"> ㅤㅤㅤㅤㅤㅤㅤ⤷ ㅤㅤ My main color theme is green at the moment since I rlly like green. 
+<p align="center"> ㅤㅤㅤㅤㅤㅤ⤷ ㅤㅤPlease IWEC whenever I'm either in a bad mood or just genuinely pissed off.
+<p align="center"> ㅤㅤㅤ ㅤㅤㅤ⤷ ㅤㅤI'm mostly online on Pony town, Discord, Roblox, and Minecraft. All socials will be listed on my Sp!
 
 <!--
 **Hello-MyFriends190/Hello-MyFriends190** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
