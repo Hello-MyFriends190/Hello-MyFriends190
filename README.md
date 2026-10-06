@@ -16,11 +16,15 @@
 
 
 
-<p align="center">  ㅤ಄ㅤㅤㅤ .☘︎ ݁˖  ㅤㅤㅤWelcome to my profile!!  Please read my Strawpage before int with me!!
+<p align="center">  ㅤ಄ㅤㅤㅤ .☘︎ ݁˖  ㅤㅤㅤWelcome to my profile!!  <img width="20" height="20" alt="https://i.postimg.cc/6TXqKm9Q/g34.gif"src="https://github.com/Hello-MyFriends190/Hello-MyFriends190/blob/7ffe521f6842e8249dde64c43a13e65c6f7fff21/g34.gif" />  ꒰ Please read my ${\color{#90a955}Strawpage}$ before int with me!!
 
 <p align="center"> ㅤㅤㅤㅤㅤㅤㅤ⤷ ㅤㅤ My main color theme is green at the moment since I rlly like green. 
 <p align="center"> ㅤㅤㅤㅤㅤㅤ⤷ ㅤㅤPlease IWEC whenever I'm either in a bad mood or just genuinely pissed off.
-<p align="center"> ㅤㅤㅤ ㅤㅤㅤ⤷ ㅤㅤI'm mostly online on Pony town, Discord, Roblox, and Minecraft. All socials will be listed on my Sp!
+ <p align="center"> ㅤㅤㅤㅤㅤㅤㅤ⤷ ㅤㅤI'm mostly online on Pony town, Discord, Roblox, and Minecraft. All socials will be listed on my Sp!
+
+ 
+
+ <p align="center"> <img width="240" height="34" alt="https://postimg.cc/n979NZVj"
 
 <!--
 **Hello-MyFriends190/Hello-MyFriends190** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
