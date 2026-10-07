@@ -2,7 +2,9 @@
 
 
 
-ㅤ<p align="center">      ㅤ[Ი𐑼 SP](https://starryprofile.straw.page/)  ㅤ۫ㅤ Ი𐑼 ˖ ㅤ[Ი𐑼 Pintrest](https://ca.pinterest.com/1asher1starry/_profile/)
+ㅤ<p align="center">      ㅤ[Ი𐑼 SP](https://starryprofile.straw.page/)  ㅤ۫ㅤ <img src="https://64.media.tumblr.com/a960f7a7853ce9e26eab58af11d167fd/821190f06cff0368-ec/s500x750/08f898dee6b665ef195c358d07e7efec7ddc44c0.pnj" width="50" hight="10" > ˖ ㅤ[Ი𐑼 Pintrest](https://ca.pinterest.com/1asher1starry/_profile/)
 
 
 
+
+ㅤ<p align="center"> <img src="https://64.media.tumblr.com/48cdf0d9db4d8425d07f2ace469b7454/17e56c69ffb64f87-9b/s2048x3072/99e68b2483faeaade6ee23d979540aaa0b51a5d3.pnj" width="400" >
