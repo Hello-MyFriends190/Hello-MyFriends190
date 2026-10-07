@@ -24,7 +24,7 @@
 
  
 
- <p align="center"> <img width="240" height="34" alt="https://postimg.cc/n979NZVj"
+ <p align="center"> <img width="240" height="34" alt="https://postimg.cc/n979NZVj"scr="https://github.com/Hello-MyFriends190/Hello-MyFriends190/blob/853530a0108f93f58b68e4055c0e667b5a421d30/o6k833%20(1).gif"
 
 <!--
 **Hello-MyFriends190/Hello-MyFriends190** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
