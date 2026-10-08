@@ -8,7 +8,7 @@
 
 ㅤ<p align="center"> 𝚂ʜᴇ / 𝙷ᴇʀ   ㅤ۫◡◡  ㅤBisexual
 
-
+ㅤ<p align="center"> ⪩ 　*" You got me wrapped around your finger acting like a fool. . "*　 ⪨
 
 ㅤ<p align="center"> <img src="https://64.media.tumblr.com/48cdf0d9db4d8425d07f2ace469b7454/17e56c69ffb64f87-9b/s2048x3072/99e68b2483faeaade6ee23d979540aaa0b51a5d3.pnj" width="400" >
 
