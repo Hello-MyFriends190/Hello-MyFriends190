@@ -10,7 +10,7 @@
 
 
 
- <p align="center"> ⊂⊃  🍏  ──  Dnc my Main goob Pony PLEASE!!   ᛝ
+ <p align="center"> ⊂⊃  🍏  ──  Read Byi before interacting with me   ᛝ
 
 <p align="center"> <img src="https://64.media.tumblr.com/253e1be1cae315a9e943ca59f57b22be/1d506581adf316c3-2d/s2048x3072/30e8b60c7987ac8c4d5f540fe253050df2870d30.pnj" width="600">
 
