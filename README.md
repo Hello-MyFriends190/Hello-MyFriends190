@@ -6,8 +6,11 @@
 
  </a>
 </p>
-<p align="center"> W . I . P
- 
+<p align="center"> <img src="https://github.com/Hello-MyFriends190/Hello-MyFriends190/blob/6f0b3849adc4a7e2df0454bbad7c90eed9ac0152/pony-town-%E2%99%AA%20Me%20!%20%E3%83%84%20C%2BH%20enc%20INT%20!%20%E2%99%AA-stand-4x.png" width="150">
+
+
+
+ <p align="center"> ⊂⊃  🍏  ──  Dnc my Main goob Pony PLEASE!!   ᛝ
 
 <p align="center"> <img src="https://64.media.tumblr.com/253e1be1cae315a9e943ca59f57b22be/1d506581adf316c3-2d/s2048x3072/30e8b60c7987ac8c4d5f540fe253050df2870d30.pnj" width="600">
 
